@@ -1,1 +1,1 @@
-![Untitled from Figma (7)](https://github.com/keewhi/keewhiskinpack/assets/96317800/da3de681-93e1-44af-97e7-63ad1995145f)
+![Untitled from Figma (9)](https://github.com/keewhi/keewhiskinpack/assets/96317800/6e878653-6dbc-443e-bcf5-cef1d28778df)
